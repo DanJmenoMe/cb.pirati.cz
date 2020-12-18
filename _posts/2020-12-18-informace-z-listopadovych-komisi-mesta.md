@@ -84,3 +84,8 @@ Pokračovalo se představením programu pro pomoc turistickému ruchu pomocí pr
 Představení nového **turistického loga města** - komise vydala usnesení, které označuje toto jako nekoncepční krok, nemoderní, chybí nastavení komunikačních kanálů, kudy a jak bude
  šířeno, resp. kde se bude používat logo města a turistické logo, nedostatečné vyjasnění
  používání v logomanuálu, nebylo komunikováno s komisí.
+
+## KOMISE PRO ŽIVOTNÍ PROSTŘEDÍ
+Komise se sešla mimořádně kvůli dřevinám v parku Dukelská, čemuž jsme věnovali [samostatný článek](https://cb.pirati.cz/blog/2020/11/23/jednali-jsme-o-zachovani-stromu-v-parku-v-dukelske/).
+
+Druhým tématem byla pravidla dotačního titulu v oblasti ŽP pro příští rok. Pirátský zástupce Dan Leština připravil návrh na jejich komplexní úpravu, který podpořili i ostatní členové napříč politickým spektrem. Nově tak budou občané mít přehledněji stanoveno, na co jim bude moci město ohledně životního prostředí přispět. Výsledná podoba by měla být vyhlášena na začátku roku, přemýšlejte tedy, jaké projekty letos podáte. Celkem na ně dá město zřejmě 1 200 000 Kč a stejně jako v minulých letech by se mělo jednat o příspěvky zhruba mezi 10 000 a 100 000 Kč pro aktivity občanů, spolků nebo i firem zlepšující životní prostředí nebo přispívající k environmentální výchově. Financujeme úklidové akce, přírodovědné vycházky pro veřejnost i školy, zahradničení v mateřských školkách, zvelebování veřejných prostranství a podobně.
